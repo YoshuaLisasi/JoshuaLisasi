@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **AI, Computer Vision**
 
-- 📫 How to reach me **josuelisasi@hotmail.com**
+- 📫 How to reach me **josuelisasi@gmail.com**
 
 - ⚡ Fun fact **I'm a regional boxing champ and france bjj champ**
 
